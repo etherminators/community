@@ -20,7 +20,11 @@ The Council should strive to maintain X number of members.
   - [CSM#161](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/161) / [CSM#163](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/163)
   - The Librarian
 - kluless
+  - [CSM#220](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/220)
+  - Apocalypse Stopper, Marine Biologist, Powerlifting
 - ryanmilo
+  - [CSM#3946](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/3946)
+  - Mutants Enabler, Machine Overlord, Game Dev
 - cmd3r
 - alwoenie
 - genkigahata
