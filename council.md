@@ -12,10 +12,10 @@ The Council should strive to maintain X number of members.
 
 - Wiklander
   - [CSM#1094](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/1094) / [CSM#186](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/186)
-  - Art and Degen, KaijuKing
+  - Art, Degen and Kaiju tamer
 - Lins
   - [CSM#386](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/386)
-  - Powerlifting and Economics
+  - Market Analysis and Powerlifting
 - Munyuk
   - [CSM#161](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/161) / [CSM#163](https://opensea.io/assets/0x5d703533d86de1a55f4ba25b2789848c89723a6b/163)
   - The Librarian
