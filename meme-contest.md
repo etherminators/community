@@ -52,7 +52,8 @@ Anything goes ofc, but here are some ideas
 - Etherminators art and lore
 - Make fun of Meta or other closed centralizers
 
-![FREEANDOPEN](https://imgflip.com/i/6go6wj)
+![FREEANDOPEN](https://i.imgflip.com/6go6wj.jpg)
+
   
 -----
   
@@ -62,7 +63,8 @@ There are 5 categories to earn prizes on! So that's 5 winners!
 🚨⚠️ Only one prize per contestant is possible. In case of multiple wins, the next valid contestant will get the prize.
 
 Check prizes below!
-<gif>
+
+![winners](https://s3-us-west-2.amazonaws.com/gifjifapp/gifUploads/U5JRAztVkJRgZx0vBcMRIyJYzzIY4H.gif)
 
 -----
   
@@ -76,13 +78,14 @@ The 5 categories to compete on are
 - 🔢  Most Quantity
 - 🐥  Most RTs
 
-<meme>
-
 -----
   
-The winners of the "Best of" prizes will be picked by the team, and all prizes will be announced on <date>.
+The winners of the "Best of" prizes will be picked by the team, and all prizes will be announced on Saturday, May 28th.
 
 Best of luck to all of you protectors of The Metaverse!
 !SEIZE and have fun! 🦾🐸
-<gif>
+
+POST BELOW THIS TWEET, GO, LFG!!!
+  
+![FLOORISDOWN](https://s3-us-west-2.amazonaws.com/gifjifapp/gifUploads/XzvpgCmk2sfNMKLiuX2Qp58nroIuI1.gif)
 
