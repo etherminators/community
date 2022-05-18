@@ -36,6 +36,8 @@ Twitter Thread
 The Etherminators seek to inspire people around the world to fight for a decentralized, free and open digital future for everyone.
 
 And the weapon of choice today are good memes and fresh NFT prizes!
+Let's make ser @punk6529 proud!
+
 Check out the details below 📦⛓
 
 ![SEIZE THE MEMES OF PRODUCTION](https://s3-us-west-2.amazonaws.com/gifjifapp/gifUploads/fXjgqVyB1A17XmxHv3gFHwnw41KTVR.gif)
