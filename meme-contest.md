@@ -26,3 +26,63 @@ There are 5 different categories for prize awards of freshly minted Etherminator
 The winners on "Best" categories are to be picked by the team.
 
 Winners are to be announced a week after start of the twitter thread.
+
+
+Twitter Thread
+--------------
+
+🦾🤖  Open Metaverse Meme Contest 🦾🐸
+
+The Etherminators seek to inspire people around the world to fight for a decentralized, free and open digital future for everyone.
+
+And the weapon of choice today are good memes and fresh NFT prizes!
+Check out the details below 📦⛓
+
+<GIF>
+  
+------
+  
+Reply on comments with your memes about your vision for an
+
+OPEN AND DECENTRALIZED METAVERSE POWERED BY THE COMMUNITY
+
+Anything goes ofc, but here are some ideas 
+- The power of Web3
+- Blockchain and NFTs
+- Etherminators art and lore
+- Make fun of Meta or other closed centralizers
+
+<meme>
+  
+-----
+  
+There are 5 categories to earn prizes on! So that's 5 winners!
+
+🎉🥳  Contestants are encouraged to submit as many entries as they can.
+🚨⚠️ Only one prize per contestant is possible. In case of multiple wins, the next valid contestant will get the prize.
+
+Check prizes below!
+<gif>
+
+-----
+  
+All winners will get 5 freshly minted @etherminators NFT!
+So you may be in for a chance of a rare or an ultra rare (last sale at 1ETH!)
+
+The 5 categories to compete on are
+- 🤡  Best Meme
+- 🎥  Best GIF 
+- 💎  Best Etherminators
+- 🔢  Most Quantity
+- 🐥  Most RTs
+
+<meme>
+
+-----
+  
+The winners of the "Best of" prizes will be picked by the team, and all prizes will be announced on <date>.
+
+Best of luck to all of you protectors of The Metaverse!
+!SEIZE and have fun! 🦾🐸
+<gif>
+
