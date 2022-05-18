@@ -38,7 +38,7 @@ The Etherminators seek to inspire people around the world to fight for a decentr
 And the weapon of choice today are good memes and fresh NFT prizes!
 Check out the details below 📦⛓
 
-<GIF>
+![SEIZE THE MEMES OF PRODUCTION](https://s3-us-west-2.amazonaws.com/gifjifapp/gifUploads/fXjgqVyB1A17XmxHv3gFHwnw41KTVR.gif)
   
 ------
   
@@ -52,7 +52,7 @@ Anything goes ofc, but here are some ideas
 - Etherminators art and lore
 - Make fun of Meta or other closed centralizers
 
-<meme>
+![FREEANDOPEN](https://imgflip.com/i/6go6wj)
   
 -----
   
@@ -72,7 +72,7 @@ So you may be in for a chance of a rare or an ultra rare (last sale at 1ETH!)
 The 5 categories to compete on are
 - 🤡  Best Meme
 - 🎥  Best GIF 
-- 💎  Best Etherminators
+- 💎  Best use of Etherminators
 - 🔢  Most Quantity
 - 🐥  Most RTs
 
