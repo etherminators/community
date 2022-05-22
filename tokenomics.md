@@ -48,7 +48,7 @@ https://the-plague.medium.com/to-hold-or-not-to-hold-6eb7068c883b
 
 # A new system
 
-A reward system designed not to promote holding, shorting suppy and pressuring price, instead, encourage engagent with the community and the brand, by incentivizing the sale of the NFTs. 
+A reward system designed not to promote holding, shorting supply and pressuring price, instead, encourage engagent with the community and the brand, by incentivizing the sale of the NFTs. 
 
 So a holder who owns 3, but has already owned 100 different ones before, is more rewarded than a holder who owns 3 and has owned that same one forever.
 
