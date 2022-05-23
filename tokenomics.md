@@ -36,7 +36,9 @@ MAYC launch sold 10k via dutch auction starting at 3eth, and distributed 10k ser
 
 serums can only be used once, any BAYC can get all types only once each.
 
-Reward is on hold at snapshot and random.
+Reward is for holding at snapshot and random.
+
+https://www.cryptonary.com/cryptoschool/simply-explained-mutant-ape-yacht-club-mayc/
 
 ### Kaiju
 
